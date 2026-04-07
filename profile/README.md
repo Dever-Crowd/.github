@@ -1,6 +1,4 @@
-# 🚀 DeverCrowd
-
-> Digital solutions that grow your business.
+# Digital solutions that grow your business.
 
 ---
 
