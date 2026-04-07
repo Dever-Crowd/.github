@@ -67,7 +67,7 @@ We are equipped to build solutions that cover a wide range of industries:
 ## 📩 Contact Us
 
 - Email: devercrowd@gmail.com  
-- Phone: +20XXXXXXXXXX  
+- Phone: +201030141149 
 
 ---
 
